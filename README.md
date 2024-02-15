@@ -1,7 +1,5 @@
 ### kauany medardo
-- amo coca cola
-- gosto de🍕 
-- amo escutar🎵
-- sei tocar violão
+meu nome e kAauany.
+sou aluna do colegio reni
 
 ![](https://media.tenor.com/SzLS2EyPOJQAAAAM/fnaf-fredbear.gif)
